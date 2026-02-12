@@ -19,15 +19,18 @@ SEO Manager with 20+ years of experience building, optimising, and scaling websi
 
 ## Selected Case Studies
 
-### Case Study 1 — Long-Term Multi-Site SEO Growth (THE BEAUTY & WELLNESS COLLECTIVE PTY LTD)
+### Case Study 1 — Long-Term Multi-Site SEO Growth
 
-**Websites:**  
-brisbanelashes.com · chaleese.com · lashjoy.com · lashandbrow.com.au · lashjoyacademy.com
-
-*(Built, optimised, and maintained over a 10-year period)*
+**Company:**  
+The Beauty & Wellness Collective Pty Ltd
 
 **Role:**  
 SEO & Web Strategy Lead (full ownership)
+
+**Websites:**  
+brisbanelashes.com · chaleese.com · lashjoy.com · lashandbrow.com.au · lashjoyacademy.com
+*(Built, optimised, and maintained over a 10-year period)*
+
 
 **Scope & Actions:**
 - Built WordPress websites and Shopify stores from scratch with SEO-first architecture  
