@@ -116,7 +116,7 @@ Scalability, adaptability, problem-solving across varied SEO environments
 
 - **SEO Manager** — Juno Media Ltd  
 - **Freelance SEO Consultant** — 80+ clients  
-- **Digital Marketing Specialist** — Rode Dienstleistungs GmbH (Enterprise-level site & database work)
+- **Digital Marketing Specialist** — Rode Dienstleistungs GmbH (Enterprise-level site)
 
 ---
 
