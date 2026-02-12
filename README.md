@@ -122,5 +122,5 @@ Scalability, adaptability, problem-solving across varied SEO environments
 
 ## Contact
 
-- **Email:** contact@jacobcornelius.com
+- **[✉️ Email](mailto:contact@jacobcornelius.com)** 
 - **CV:** Available on request
