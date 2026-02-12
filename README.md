@@ -19,10 +19,10 @@ SEO Manager with 20+ years of experience building, optimising, and scaling websi
 
 ## Selected Case Studies
 
-### Case Study 1 — Long-Term Multi-Site SEO Growth (Beauty / Local Services)
+### Case Study 1 — Long-Term Multi-Site SEO Growth (THE BEAUTY & WELLNESS COLLECTIVE PTY LTD)
 
 **Websites:**  
-lashjoy.com · brisbanelashes.com · chaleese.com  
+brisbanelashes.com · chaleese.com · lashjoy.com · lashandbrow.com.au · lashjoyacademy.com
 *(Built, optimised, and maintained over a 10-year period)*
 
 **Role:**  
