@@ -23,6 +23,7 @@ SEO Manager with 20+ years of experience building, optimising, and scaling websi
 
 **Websites:**  
 brisbanelashes.com · chaleese.com · lashjoy.com · lashandbrow.com.au · lashjoyacademy.com
+
 *(Built, optimised, and maintained over a 10-year period)*
 
 **Role:**  
