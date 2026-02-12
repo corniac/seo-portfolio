@@ -1,4 +1,4 @@
-# Corneliu Iacob  
+# Cornelius Jacob  
 **SEO Manager / SEO Team Lead**
 
 SEO Manager with 20+ years of experience building, optimising, and scaling websites across eCommerce, media, and local services. Strong focus on strategy, team leadership, and long-term organic growth, with hands-on experience across technical SEO, content, and workflows.
