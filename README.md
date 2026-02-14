@@ -83,7 +83,7 @@ Leadership, process building, scalable SEO delivery
 
 **Clients:**  
 80+ SEO clients  
-Enterprise experience at toner-express.de
+Enterprise experience at toner-express.de (fulltime employment)
 
 **Role:**  
 SEO Consultant / Digital Marketing Specialist
