@@ -22,7 +22,7 @@ SEO Manager with 20+ years of experience building, optimising, and scaling websi
 ### Case Study 1 — Long-Term Multi-Site SEO Growth
 
 **Company:**  
-The Beauty & Wellness Collective Pty Ltd
+The Beauty & Wellness Collective Pty Ltd, Brisbane QLD Australia
 
 **Role:**  
 SEO & Web Strategy Lead (full ownership)
@@ -53,7 +53,7 @@ Long-term SEO ownership, technical + content integration, sustainable growth
 ### Case Study 2 — SEO Manager & Team Leadership (Media / Content SEO)
 
 **Company:**  
-Juno Media Ltd
+Juno Media Ltd, Nottimgham UK
 
 **Role:**  
 SEO Manager
